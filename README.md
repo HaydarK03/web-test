@@ -1,0 +1,1 @@
+<img width="1898" height="1335" alt="screencapture-file-home-kamil-download-web-market-index-html-2025-10-31-03_40_58" src="https://github.com/user-attachments/assets/7735c849-1705-4430-8c51-2c0d284ca9b8" />
